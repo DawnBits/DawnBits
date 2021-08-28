@@ -1,0 +1,1 @@
+- Eu sou a Isadora e pra ser brutalmente honesta, eu sou das artes, mas eu me aventuro com programação de vez em quando :) ~pra não dizer que de vez em quando eu sou obrigada, porque esse é o tema do meu curso, mas isso a gente não comenta, eu até que gosto~
